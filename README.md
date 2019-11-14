@@ -1,2 +1,3 @@
 # cse_232
-For my cse class
+I'm a nineteen year old computer engineering student who wants to go into medicine. I have a chihuahua who is my world
+and honestly I like her more than most people. 
